@@ -1,3 +1,3 @@
-## Welcome to Bogdan Orzea Github page
+## Welcome to Bogdan Orzea's GitHub page
 
-Under construction
+Currently, this page is under construction.
